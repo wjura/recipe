@@ -1,6 +1,6 @@
 Ingredients for 3-4 servings:
 
-1 kg cooked potatoes,
-~200 g potato starch,
-1 egg,
-0,5 tsp salt.
+1) 1 kg cooked potatoes,
+2) ~200 g potato starch,
+3) 1 egg,
+4) 0,5 tsp salt.
